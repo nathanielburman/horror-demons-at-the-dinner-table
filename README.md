@@ -5,3 +5,5 @@ Women Prefer Knives
 She was standing alone, all alone. She knew no one but her kitchen tools. She knows her kitchen tools really well.
 
 She silently sets up her table for two.
+
+She sets out her biggest knife at the other placement on the table.
