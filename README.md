@@ -27,3 +27,4 @@ Then nothing moves into place.
 
 The knife flies off the table and it startles her.
 
+<img src="https://github.com/nathanielburman/horror-demons-at-the-dinner-table/blob/main/dream_TradingCard.jpg" width="500px"></img>
